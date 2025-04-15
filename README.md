@@ -1,4 +1,4 @@
-# Move It
+# Move With Joy
 
 Welcome to **Move It**, where we make moving joyful, seamless, and stress-free. As a passionate startup in the US, we’re redefining the moving experience with professional service, personal attention, and transparent pricing.
 
